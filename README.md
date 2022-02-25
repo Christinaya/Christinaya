@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Christinaya or Chrissy  
-- 👀 I’m interested in stats and painting 
+- 👀 I’m interested in travelling and painting (acrylic/watercolour)
 - 🌱 I’m currently learning stats 
 - 💞️ I’m looking to collaborate on my MRes project
 - 📫 How to reach me @ 0481810518 or @ christina.feng@hdr.mq.edu.au
