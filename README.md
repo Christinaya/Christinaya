@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @Christinaya or ✨Chrissy✨  
-- 👀 I’m interested in travelling and painting (acrylic/watercolour)
+- 👋 Hi, I’m ✨Chrissy✨  
+- 👀 I’m interested in travelling the world and acrylic/watercolor painting 
 - 🌱 I’m currently learning biostatistics
 - 💞️ I’m looking to collaborate on my stats project
-- 📫 How to reach me @ 0481810518 or @ christina.feng@hdr.mq.edu.au
+- 📫 How to reach me @ christina.feng@hdr.mq.edu.au
 
 <!---
 Christinaya/Christinaya is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
