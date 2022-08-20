@@ -1,5 +1,5 @@
 - 👋 Hi, I’m ✨Chrissy✨  
-- 👀 I’m :heart: travelling the world :earth_asia:, surfing :surfer: and acrylic/watercolor painting :art:
+- 👀 I :heart: travelling the world :earth_asia:, surfing :surfer: and acrylic/watercolor painting :art:
 - 🌱 I’m currently learning biostatistics
 - 💞️ I’m looking to collaborate on my stats project
 - 📫 How to reach me @ christina.feng@hdr.mq.edu.au
