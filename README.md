@@ -1,4 +1,4 @@
-- 👋 Hi, I’m ✨Chrissy✨  
+- 👋 Hi, I’m ✨Christie✨  
 - 👀 I :heart: travel the world :earth_asia:, surfing :surfer: and acrylic/watercolor painting :art:
 - 🌱 I’m learning biostatistics 📚
 - 💞️ I’m seeking collaboration on my Pleiotropy 🧬 project
